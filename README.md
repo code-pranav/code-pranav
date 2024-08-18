@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Pranav
-- 📫 How to reach me 🕊️✉
 - ⚡ Fun fact: 404
