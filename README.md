@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @code-pranav
+- 👋 Hi, I’m Pranav
 - ⚡ Fun fact: 404
